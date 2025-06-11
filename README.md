@@ -1,0 +1,1 @@
+# autocheckdoc-privacy-policy
